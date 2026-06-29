@@ -1,4 +1,4 @@
-#  
+#  evade secret Script is the best evade Script, featuring auto-collect and auto-heal. Safe and powerful for all your needs.
 
 
 
